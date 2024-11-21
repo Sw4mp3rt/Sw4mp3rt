@@ -1,4 +1,4 @@
-## Aquí Sw4m 👋
+## Im Sw4m 👋
 
 - 🔭 Actualmente estudiando CFGM de Redes y Telecomunicaciones
 - 🌱 Aficionado de la ciberseguridad, networking e IT en mi tiempo libre
